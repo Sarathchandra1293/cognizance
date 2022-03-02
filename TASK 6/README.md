@@ -27,7 +27,7 @@
 
 
 
->---you can get rare pokemons if you are pro gamer ---
+>---you can get rare pokemons if you are legit gamer ---
 
 
 
